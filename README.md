@@ -1,5 +1,5 @@
 <h1>Qualified sports forecasts from FootballBettingGuide</h1>
-<p>Almost every person who is interested in sports, thinks about making a bet on Betting Sites and earn extra money on their hobby. But it is quite difficult to place bets, because you need to choose a bookmaker correctly, analyze matches skillfully, and take into account certain factors inherent in certain sports. A lot of useful information and reviews of bookmakers are presented on the portal FootballBettingGuide <a href=https://footballbettingguide.co.ke>https://footballbettingguide.co.ke</a>.</p>
+<p>Almost every person who is interested in sports, thinks about making a bet on Betting Sites and earn extra money on their hobby. But it is quite difficult to place bets, because you need to choose a bookmaker correctly, analyze matches skillfully, and take into account certain factors inherent in certain sports. A lot of useful information and reviews of bookmakers are presented on the portal FootballBettingGuide https://footballbettingguide.co.ke.</p>
 
 <p>Recently, bookmakers have become popular among sports fans. If you are well versed in the European Championships, you can earn money.</p>
 <h2>Betting Tips how to start betting</h2>
